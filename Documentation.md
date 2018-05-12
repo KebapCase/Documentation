@@ -9,3 +9,5 @@
 [Lab_4](https://docs.google.com/document/d/1drrwkoWy735SYPe-QPN6rDUPd0Cqs7Srvg0uORGpC34/edit?usp=sharing)
 
 [Lab 5](https://docs.google.com/document/d/1d7HnboLxjcF7kHQVLt8cDdl9lzyg3cRBktzbUG2GAaM/edit#)
+
+[Lab_6](https://docs.google.com/document/d/12oy2GrMYqaotqqc4QyPYbd7e6dR30Qla5MoaU1FDBOw/edit?usp=sharing)
